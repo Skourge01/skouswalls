@@ -1,2 +1,2 @@
 # skouswalls
-my wallpapers linux 
+my wallpapers 
